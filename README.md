@@ -1,0 +1,2 @@
+# UCF-Virtual-Student-Union
+• The UCF Virtual Student Union will  be an extension of the physical university  presence, increasing the university’s support to its students • Within  the Virtual Student Union will  be • Visiting spaces • L earning spaces • I nformational spaces • A dvising spaces • T utoring spaces • “Free  speech” areas that will support and enhance the students’ holistic  collegiate experience
